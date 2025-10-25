@@ -1,0 +1,1 @@
+This is a Brand New Browser which is a direct competitor to Comet ( Perplexity ) and ChatGPT Atlas. I'm going to raise $10M+ in funding and build the best browser ever.
